@@ -1,5 +1,5 @@
 # 💫 About Me:
-"* *Incline my heart to your testimonies,<br>    and not to selfish gain!* *"<br><br>**Psalm 119:36**
+"*Incline my heart to your testimonies,<br>    and not to selfish gain!*"<br><br>**Psalm 119:36**
 
 
 # 🐦‍⬛ Tech Stack:
